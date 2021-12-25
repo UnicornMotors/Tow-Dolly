@@ -27,7 +27,7 @@ https://www.mastertow.com/towdollies
 >
 >~Load Up starts at 4:01
 >
-~You will need a 4 pin Y splitter to be anble to hook up the tow lights and trailer lights at same time. (Link to one on Amazon above)
+>~You will need a 4 pin Y splitter to be anble to hook up the tow lights and trailer lights at same time. (Link to one on Amazon above)
 Just got a new dolly so here is an updated video for you people that want to get down the road safely and not look like a fool.  PLEASE GIVE IT A THUMBS UP AND SUBSCRIBE IT THE VIDEO HELPS YOU OUT.
 >
 >THANKS SO MUCH! `
