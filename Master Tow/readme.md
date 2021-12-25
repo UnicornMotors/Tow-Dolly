@@ -15,10 +15,10 @@ https://www.mastertow.com/towdollies
 >TOW LIGHTS I USE: https://www.amazon.com/s?k=magnetic+light+kit+towing+12v
 >4-PIN SPLITTER: https://www.amazon.com/s?k=4+pin+trailer+splitter
 >BASKET STYLE WHEEL STRAPS: https://www.amazon.com/s?k=Tow+dolly+basket+strap
-> 
-> ~~~NOTES~~~
-> 
->*~DO NOT TOW EVEN A MANUAL TRANS RWD WITHOUT DISCONNECTING THE DRIVESHAFT.*  After making this video, I did some more research and many manual transmissions need input shaft to be spinning for proper lubrication.  I was under the assumption that since a manual transmission generally does not have an oil pump mounted on the input shaft, that it would be okay to be towed in neutral with the rear wheels on the ground.  NOT THE CASE and certainly not worth taking a risk.
+>
+>NOTES
+>
+>*DO NOT TOW EVEN A MANUAL TRANS RWD WITHOUT DISCONNECTING THE DRIVESHAFT.*  After making this video, I did some more research and many manual transmissions need input shaft to be spinning for proper lubrication.  I was under the assumption that since a manual transmission generally does not have an oil pump mounted on the input shaft, that it would be okay to be towed in neutral with the rear wheels on the ground.  NOT THE CASE and certainly not worth taking a risk.
 >
 >~I did not talk much about the chains that come originally equipped with this dolly. After securing your car down with straps, you need to secure the chains around the front axle or frame. They serve as a safety in case one of the straps were to break.
 >
