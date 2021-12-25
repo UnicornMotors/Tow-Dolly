@@ -18,7 +18,7 @@ https://www.mastertow.com/towdollies
 >
 >NOTES
 >
->*DO NOT TOW EVEN A MANUAL TRANS RWD WITHOUT DISCONNECTING THE DRIVESHAFT.*  After making this video, I did some more research and many manual transmissions need input shaft to be spinning for proper lubrication.  I was under the assumption that since a manual transmission generally does not have an oil pump mounted on the input shaft, that it would be okay to be towed in neutral with the rear wheels on the ground.  NOT THE CASE and certainly not worth taking a risk.
+>**DO NOT TOW EVEN A MANUAL TRANS RWD WITHOUT DISCONNECTING THE DRIVESHAFT.**  After making this video, I did some more research and many manual transmissions need input shaft to be spinning for proper lubrication.  I was under the assumption that since a manual transmission generally does not have an oil pump mounted on the input shaft, that it would be okay to be towed in neutral with the rear wheels on the ground.  NOT THE CASE and certainly not worth taking a risk.
 >
 >~I did not talk much about the chains that come originally equipped with this dolly. After securing your car down with straps, you need to secure the chains around the front axle or frame. They serve as a safety in case one of the straps were to break.
 >
