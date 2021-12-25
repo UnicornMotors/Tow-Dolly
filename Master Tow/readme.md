@@ -40,3 +40,5 @@ Maximum Gross Weight of Vehicle to be Towed	4,900 lbs.
 Tire Size (Trailer Service)	ST 205/75D 14
 Coupler Size	2
 Coupler Class	SAE SAE 3 / 5,000 lbs.
+
+https://www.tomsequipment.com/2022-master-tow-80thd-tow-dolly-electric-brakes-9v8h%7Cubg.html
